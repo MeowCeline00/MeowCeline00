@@ -1,4 +1,6 @@
-## 👋 Hi there! I'm Congling Wang — you can call me Celine
+## 👋 Hi there! I'm Congling Wang - A UI/UX Designer and Web Developer
+
+#  You can call me Celine 😻
 
 - 🎨 I’m passionate about UI/UX design, web development, and graphic design
 
