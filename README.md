@@ -6,7 +6,7 @@
 
 - 🤝 I’m open to collaborating on creative website projects and turning ideas into reality
 
-- 📫 Let’s connect on LinkedIn
+- 📫 Let’s connect on LinkedIn: https://www.linkedin.com/in/congling-wang-22a475172/
 
 - 😄 Pronouns: She/Her
 
